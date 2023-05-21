@@ -1,6 +1,10 @@
-I'm sorry for not following up on every interaction here. Busy surviving.
+We're sorry for not following up on every interaction here. Busy surviving.
 
 No 9000 emojis and self-adulation.
+
+This is a shared github account. You may speak to different people. It shouldn't matter who's on the other end. Internet-ego is for the deranged. Just see what kind of 'features' GH has now: lowest common denominator.
+
+Account-sharing helps defeat ego and improves privacy metrics.
 
 ---
 
