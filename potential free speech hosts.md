@@ -1,3 +1,5 @@
+# potential free speech hosts
+
 Some incredibly abusive Zeitgeist trolls try harassing the handful of hosters left who do know what free speech means. A 'free internet'? Not with those wannabe-fascists around.
 
 It may be worth checking the hypocrite repos once in a while to see if they found new good men. 
